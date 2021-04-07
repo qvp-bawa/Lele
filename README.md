@@ -1,6 +1,6 @@
-# Lele
-my little daughter
+# bawa or badou
+my little girl
 
-she born on 2016. she looks like my wife.
+she was born in 2016. she looks like my wife.
 
 I love her.
